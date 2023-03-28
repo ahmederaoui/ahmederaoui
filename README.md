@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm software engeneering student <br>I'm always loking forward to collaborating on big projects an learning new technologies<br>Through my academic experinece an as president of an IT club, i accumulated  several skills such as teamwork, leadership and communication
+I'm software engeneering student <br>I'm always loking forward to collaborating on big projects an learning new technologies<br>Through my academic experinece and as president of an IT club, i accumulated  several skills such as teamwork, leadership and communication
 
 
 ## 🌐 Socials:
